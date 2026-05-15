@@ -1,4 +1,4 @@
-# 
+# rare Sniper for MEV sniper bot | low-cap-gem-detection & front-running offers the most advanced MEV sniper bot, with low-cap-gem-detection and front-running. Ideal for
 
 
 
